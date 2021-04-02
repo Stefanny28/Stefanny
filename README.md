@@ -1,3 +1,3 @@
 # Stefanny
 clases
-Soy signo cancer :)
+odio a geminis
