@@ -1,3 +1,3 @@
 # Stefanny
 clases
-odio a geminis
+diganme sus signos
